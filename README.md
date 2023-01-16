@@ -1,1 +1,1 @@
-# resume
+https://dewanshukaushik.github.io/resume/
